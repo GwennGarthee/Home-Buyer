@@ -2,18 +2,20 @@ Every last individual who buys a home ordinarily will have distinctive encounter
 Here are some tips you need to know before buying a new home:
 What amount of store do I have to purchase a house? 
 
-Verify you can manage the cost of your month to month reimbursements 
+<br>1)Verify you can manage the cost of your month to month reimbursements 
 
-Financial plan for alternate expenses of purchasing a home 
+<br>2) Financial plan for alternate expenses of purchasing a home 
 
-Reasonable plans to get on the property stepping stool 
+<br>3) Reasonable plans to get on the property stepping stool 
 
-Discovering a home loan 
+<br>4) Discovering a home loan 
 
-Freehold or leasehold 
+<br>5) Freehold or leasehold 
 
-The application process 
+<br>6) The application process 
 
-Another person can promise your home loan 
+<br>7) Another person can promise your home loan 
 
-The home purchasing procedure 
+<br>8) The home purchasing procedure 
+
+Gwenn Garthee - designer at <a href="http://www.topcashoffer.co.uk/free-house-valuation.html">free house valuation</a>
