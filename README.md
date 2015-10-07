@@ -3,10 +3,15 @@ Every individual who buys a home will have a series of obstacles they need to ov
 Here are some tips you need to know before buying a new home: What kind of deposit do I need (if any) to purchase a house? 
 
 1) The application process.
+
 2) Verify you can manage the cost of your monthly outgoings.
+
 3) Financial plan 
+
 4) Freehold or leasehold
+
 5) Do you need a Guarantor to help with getting on the property ladder?
+
 6) The home purchasing procedure 
 
 
